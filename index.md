@@ -19,3 +19,7 @@ und hier noch eine Liste:
 Wie schon immer MYG sagte:
 > Geschäftsprozesse optimieren ist nicht einfach
 
+Bei GOBD geht das so:
+
+<img src="https://kamaste.de/wp-content/uploads/2020/03/Illu-Visualisierung-Gobd-Kamaste-RZ.jpg"/>
+
