@@ -4,4 +4,4 @@ es auch sein lassen. Eventuell schreibt man auch etwas zu wenig. Man
 kann nicht behaupten, dass es nicht sein kann, allerdings kann man auch
 nicht sicher sagen, dass es stimmt.
 Fazit: der Charakter ist eventuell nicht genau oder zu genau beschrieben.
-
+## Er liebt Schokolade Gutes Essen und Reisen
